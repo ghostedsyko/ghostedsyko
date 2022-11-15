@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ghostedsyko
+- 👀 I’m interested in cyber security
+- 🌱 I’m currently learning penetration testing
+- 📫 How to reach me 𝒮𝓎𝓀𝑜#7359 - Discord
